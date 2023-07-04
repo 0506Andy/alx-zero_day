@@ -1,1 +1,1 @@
-Just school
+Day zero
